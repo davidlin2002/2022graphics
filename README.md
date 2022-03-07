@@ -1,1 +1,1 @@
-# 2022graphics
+# 2022Graphics
